@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LeandroIsaak
-- 👀 I’m interested in ... To learn/Aprender, To teach/Ensinar, To contribute,Contribuir, Explore/Explorar, To discover/Descobrir and To implement/e Implementar
+- 👀 I’m interested in ... To learn/Aprender, To teach/Ensinar, To contribute/Contribuir, Explore/Explorar, To discover/Descobrir and To implement/e Implementar
 - 🌱 I’m currently learning ... Programming/Programação, Music/Música, How to lear/Como aprender, Comunication/Comunicação
 - 💞️ I’m looking to collaborate on ... Programming/Programação, Music/Música, How to lear/Como aprender, Comunication/Comunicação
 - 📫 How to reach me ... @leandroisaak (Instagram)
